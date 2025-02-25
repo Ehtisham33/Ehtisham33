@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ehtisham33&label=Profile%20views&color=0e75b6&style=flat" alt="ehtisham33" /> </p>
 
-- 📫 How to reach me **educatedshami@gmail.com**
+- 📫 How to reach me **malik.ehtisham.188@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1ATQ2KronNoONAlbil2t6HuHFzgqm521Z/view?usp=sharing](https://drive.google.com/file/d/1ATQ2KronNoONAlbil2t6HuHFzgqm521Z/view?usp=sharing)
 
